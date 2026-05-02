@@ -15,6 +15,9 @@
   Hi, i'm yuni or spikna . any pronouns and always c+h in Pony Town!
 </p>
 
+<p align="center">
+  non-binary - pansexual !
+  </p>
 ![Alt Tag](https://files.catbox.moe/pct622.png)
 
 <p align="center">
