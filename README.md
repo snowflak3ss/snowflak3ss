@@ -26,7 +26,7 @@
 </p>
 
 <p align="center">
-My Kinnies are : Anima , John Zen , Rue , Beatzz and Jake (Homestuck).
+My fickins are : Anima , John Zen , Rue , Beatzz and Jake (Homestuck).
 </p>
 
 <p align="center">
