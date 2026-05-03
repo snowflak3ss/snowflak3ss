@@ -30,7 +30,7 @@ My Kinnies are : Anima , John Zen , Rue , Beatzz and Jake (Homestuck).
 </p>
 
 <p align="center">
-Dirkhal , Bacon x Slender , JakeDirk and Nine x Six shipper :3<
+Dirkhal , Bacon x Slender , Anima x Echo and Nine x Six shipper :3c
 </p>
 
 ![Alt Tag](https://files.catbox.moe/jc47gn.gif)
