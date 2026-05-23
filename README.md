@@ -1,9 +1,9 @@
-![Alt Tag](https://files.catbox.moe/g2b0gr.png)
-![Alt Tag](https://files.catbox.moe/7ca6td.png)
+![Alt Tag](https://files.catbox.moe/6x8ucm.png)
+
 
 <p align="center">
-  wip <:3
+  I SWEAR IGONNA FINISH THIS PLS WAIT
 </p>
 
-![Alt Tag](https://files.catbox.moe/7ca6td.png)
-![Alt Tag](https://files.catbox.moe/i5bn6i.png)
+
+![Alt Tag](https://files.catbox.moe/ngp3fl.png)
