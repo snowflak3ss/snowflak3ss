@@ -2,7 +2,7 @@
 
 
 <p align="center">
-  I SWEAR IGONNA FINISH THIS PLS WAIT
+  I SWEAR I'MGONNA FINISH THIS PLS WAIT
 </p>
 
 
