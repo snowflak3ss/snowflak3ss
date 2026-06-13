@@ -11,7 +11,7 @@ $$\color{#EAD7C4}{\text{𝒴ou are here again, DREAMER.}}$$
 $$\color{#7D705F}{\text{𝒯o what do we owe the occasion?}}$$
  </p>
 <p align="center">
-$$\color{#15283C}{\text{𝒜re you running out of time?}}$$
+$$\color{#081018}{\text{𝒜re you running out of time?}}$$
 </p>
 
 
