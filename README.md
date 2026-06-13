@@ -1,1 +1,1 @@
-
+![Alt tag](https://cdn.discordapp.com/attachments/1423358505196326934/1515368191013027900/111_sin_titulo_20260613114436.png?ex=6a2ec01a&is=6a2d6e9a&hm=f69eae70b345ac8aa70068b1efafe9516c3659d3304759ed71780aeb84ead980)
