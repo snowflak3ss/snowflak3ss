@@ -30,7 +30,7 @@ $$\color{#081018}{\text{𝒜re you running out of time?}}$$
 ![Alt Tag](https://cdn.discordapp.com/attachments/1423358505196326934/1515385390117163139/117_sin_titulo_20260613130020.png?ex=6a2ed01f&is=6a2d7e9f&hm=9e729cca6b1073ac68e04f975767b33b6fa938c1cf068c2449e8e1580ac9593a)
 
 <p align="center">
-	love them:
+	I love them:
 </p>
 
 <p align="center">
