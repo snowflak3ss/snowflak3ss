@@ -32,13 +32,11 @@
  <a href="https://github.com/Falling-Leafs" target="_blank">
   <button>Falling-Leafs</button>
 	</a>
-
- 
+,
  <a href="https://github.com/THEHELLWEMADE" target="_blank">
   <button>THEHELLWEMADE</button>
 	</a>
-
-
+,
  <a href="https://github.com/Spokeisherelmao" target="_blank">
   <button>Spokeisherelmao</button>
 	</a>
