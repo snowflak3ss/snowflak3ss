@@ -5,13 +5,13 @@
 ![Alt Tag](https://cdn.discordapp.com/attachments/1423358505196326934/1515385390117163139/117_sin_titulo_20260613130020.png?ex=6a2ed01f&is=6a2d7e9f&hm=9e729cca6b1073ac68e04f975767b33b6fa938c1cf068c2449e8e1580ac9593a)
 
 <p align="center">
- 𝒴ou are here again, DREAMER.
+$$\color{#EAD7C4}{\text{𝒴ou are here again, DREAMER.}}$$
 </p>
 <p align="center">
-𝒯o what do we owe the occasion?
+$$\color{#7D705F}{\text{𝒯o what do we owe the occasion?}}$$
  </p>
 <p align="center">
-𝒜re you running out of time?
+$$\color{#15283C}{\text{𝒜re you running out of time?}}$$
 </p>
 
 
