@@ -1,7 +1,8 @@
 ![Alt tag](https://cdn.discordapp.com/attachments/1423358505196326934/1541212541223436368/162_sin_titulo_20260823192723.png?ex=6a8cc588&is=6a8b7408&hm=098dce3d0d39efe242142b67aac08ac5b23f9afe6b163b16d3eec1b0d7f49e6f&)
 
 <p align="center">
-  wipp!!!!!!
+  $\color{#FFE6FD}{wip}$
+  
 <p/>
 
 ![Alt tag](https://cdn.discordapp.com/attachments/1423358505196326934/1541220205483786391/160_sin_titulo_20260823195833.png?ex=6a8cccab&is=6a8b7b2b&hm=4a0809b75f7ae60bfa495ec4c8cc99ee3907643a62ef36a92eedbca27566df6e)
