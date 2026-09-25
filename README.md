@@ -1,5 +1,4 @@
-![Alt tag](https://cdn.discordapp.com/attachments/1423358505196326934/1550217880426127451/175_sin_titulo_20260917155200.png?ex=6aad8868&is=6aac36e8&hm=ff430b0fe7c8695be78bbbcd42caa2808c3e75a6097e8728116fae32248aa8e6)
-
+![Alt tag](https://cdn.discordapp.com/attachments/1423358505196326934/1553147799271374990/178_sin_titulo_20260925175435.png?ex=6ab8311b&is=6ab6df9b&hm=fed3ebd82206ffac896c99f48ac4d36dad5715a840b065e3cd17ece7a175f0a6)
 <p align="center">
   wip
 </p>
