@@ -11,3 +11,8 @@
   ♡
 </p>
 
+![Alt tag](https://cdn.discordapp.com/attachments/1423358505196326934/1561070540452532334/213_sin_titulo_20261017143621.png?ex=6ad503bc&is=6ad3b23c&hm=bb35f823b52724176763e33f752c49a2db1bd0fbcad4dd768577621b793a9ef4)
+
+<p align="center">
+  <a href="https://en.pronouns.page/@snowflak3ss">𝒫ronouns.</a>　﹑　<a href="https://guns.lol/spikna">𝒢uns.lol</a>　﹑　<a href="https://snowflak3ss.straw.page/">𝒮traw</a>
+</p>
