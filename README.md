@@ -2,3 +2,8 @@
 
 
 ![Alt tag](https://cdn.discordapp.com/attachments/1423358505196326934/1561060412823175319/213_sin_titulo_20261011120139.png?ex=6ad4fa4d&is=6ad3a8cd&hm=7842f0840d0bfdb8a7c66d2074fcc8611cfb3898e7090efd7e66dadfe2d89257)
+
+<p align="center">
+  <a href="https://github.com/shawnfrostee12">𝒮hawn</a>　﹒　<a href="https://github.com/shawnfrostee12">ℳatt</a>　﹒　<a href="https://github.com/shawnfrostee12">ℳax</a>
+</p>
+
